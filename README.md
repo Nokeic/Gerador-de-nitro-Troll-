@@ -1,2 +1,3 @@
-# Gerador-de-nitro-Troll-
+# Gerador-de-nitro-Troll
 ATENÇÃO, ISSO É UM TROLL! ("VIRUS")
+# NÃO ME RESPONSABILIZO PELO USO!
